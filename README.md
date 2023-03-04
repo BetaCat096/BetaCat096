@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BetaCat096
-- 👀 I’m interested in cats
+- 👀 I’m interested in cats and Splatoon
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on Linux Prijects
 - 📫 How to reach me: benhouse636@gmail.com, or discord: Inkling#0756.
